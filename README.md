@@ -1,1 +1,1 @@
-# pr_lab
+# pr_labo'zgarish
